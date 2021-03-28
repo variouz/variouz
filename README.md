@@ -1,0 +1,6 @@
+- 🤠 @variouz
+- 🌀 Discord: https://discord.io/variouz
+- ▶️ YT: https://tinyurl.com/variouzyt
+- 💻 Site: https://variouz.github.io
+- 🌱 I’m currently learning Java, Python, HTML, & C#
+- 📫 DM me on Twitter (@_variouz) to reach out to me
